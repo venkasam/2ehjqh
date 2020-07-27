@@ -1,2 +1,2 @@
 # 2ehjqh
-ttps://venkasam.github.io/2ehjqh/.
+https://venkasam.github.io/2ehjqh/.
